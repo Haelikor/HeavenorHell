@@ -2,6 +2,7 @@
 Ducks!
 
 March 2nd, 2019 -- lot of ducking! Get to posting! Sad!
+March 3rd, 2019 -- Ishnaelyr says he was busy transitioning into his new life as "neo nazi dragon overlord supreme," but he'll post soon!
 
 https://docs.google.com/document/d/1C-l0-tU2_sLQaflOpFzN7tGVkdWjHcfsskT7FVEXxQE/ - The Official Document of duckery, updated 2/20/2019. Will be updated again sometime here in the weekend, look forward to it!
 
